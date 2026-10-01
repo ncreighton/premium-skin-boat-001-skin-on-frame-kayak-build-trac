@@ -1,0 +1,2 @@
+# premium-skin-boat-001-skin-on-frame-kayak-build-trac
+Every heritage-canoe-building professionals needs this — most just don't know it yet.  Mobile-optimized for Notion iOS and Android — works everywhere you work. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Skin-On-Frame Kayak Build — fully configured and ready to use - Pre-built databases wi
